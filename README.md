@@ -41,7 +41,9 @@ https://hackmd.io/fyLYBvG5RaWI_HP6tbsOMw
  ![image](https://github.com/112AsukaMiku/NTU-COOL-SUB/assets/138887749/11a567f6-8f11-48c8-a646-12636df2b034)
 
 
-2.下載https://kaki88haruka.pse.is/5a5yhv之中的檔案
+2.下載
+https://kaki88haruka.pse.is/5a5yhv
+之中的檔案
 你會看到一個EXE檔 將其下載即可
 ![image](https://github.com/112AsukaMiku/NTU-COOL-SUB/assets/138887749/f7a3a19c-a8aa-4c39-ae94-8488fea54a10)
 ![image](https://github.com/112AsukaMiku/NTU-COOL-SUB/assets/138887749/201e9f4f-b2ea-4edf-8de0-35985a697c76)
