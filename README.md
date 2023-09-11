@@ -45,15 +45,25 @@ https://hackmd.io/fyLYBvG5RaWI_HP6tbsOMw
 https://kaki88haruka.pse.is/5a5yhv
 之中的檔案
 你會看到一個EXE檔 將其下載即可
+
 ![image](https://github.com/112AsukaMiku/NTU-COOL-SUB/assets/138887749/f7a3a19c-a8aa-4c39-ae94-8488fea54a10)
+
 ![image](https://github.com/112AsukaMiku/NTU-COOL-SUB/assets/138887749/201e9f4f-b2ea-4edf-8de0-35985a697c76)
+
 可能會出現這個
+
 ![image](https://github.com/112AsukaMiku/NTU-COOL-SUB/assets/138887749/1e5dd853-43b4-43ed-88d7-d99a24480faf)
+
 點選"..."
+
 再來點"保留"
+
 再點"顯示更多"
+
 ![image](https://github.com/112AsukaMiku/NTU-COOL-SUB/assets/138887749/4777bf83-d0ae-45b0-9adc-1ee9801a06b9)
+
 再點"仍要保留"即可
+
 ![image](https://github.com/112AsukaMiku/NTU-COOL-SUB/assets/138887749/cfc34f52-d95d-427b-b126-f6bba3d17f58)
 
 
