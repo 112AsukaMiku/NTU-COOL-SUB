@@ -34,6 +34,9 @@ https://hackmd.io/fyLYBvG5RaWI_HP6tbsOMw
  
 好啦 其實只是我懶而已
 
+![image](https://github.com/112AsukaMiku/NTU-COOL-SUB/assets/138887749/f904dac7-8c3a-4439-9947-cc90e4562301)
+
+
 所以我問問CHAT GPT 
 
 弄出一個懶人用的捷徑
